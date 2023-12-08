@@ -1,4 +1,4 @@
-My brain 🧠 sparks when thinking about neuro/data science and tech.
+My brain 🧠 sparks when thinking about neuro/data science, ai & tech.
 
 I like mango 🌱
 
